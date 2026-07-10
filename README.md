@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-MAGB850629MJCRVL07
+MAGB850629MJCRVL07
